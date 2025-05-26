@@ -1,3 +1,3 @@
-THIS PROJECT MADE ON 12 CLASS. 
+THIS PROJECT MADE ON CLASS-12. 
 <br>
 Author -- HimanshuMahala
